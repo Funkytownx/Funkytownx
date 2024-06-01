@@ -1,4 +1,4 @@
-[![HitCount](https://hits.dwyl.com/Funkytownx/Funkytownx.svg?style=flat-square)](http://hits.dwyl.com/Funkytownx/Funkytownx)
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=funkytownx&label=Profile%20views&color=0e75b6&style=flat" alt="funkytownx" /> </p>
 ooo U like yaoiii ooo u wanna be my friend soo baddd ooooooo you wanna do crackkk aaaaa oooo    
 
 ![](https://t4.ftcdn.net/jpg/00/82/05/83/360_F_82058314_YqM4HuMYBrePcyKadRhAzLxm5hb1954X.jpg)
